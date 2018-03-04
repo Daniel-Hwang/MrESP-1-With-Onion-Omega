@@ -15,3 +15,4 @@ Thirdly, Programming with python and uploading program
 
 
 More detail：
+https://www.kickstarter.com/projects/1402904547/mr-esp-1-your-exclusive-brainwave-equipment/posts/2127926
